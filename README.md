@@ -1,0 +1,2 @@
+# Mano
+Passa um dólar
